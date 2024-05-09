@@ -15,4 +15,4 @@
  ![image](https://media.githubprod.prci.com/user/2457/files/6b9357ac-7221-4121-9cce-237304dc9d68)|
 
  ### Tip - Type in "Log" in the filters to easily find logs
- ![image](https://media.githubprod.prci.com/user/2457/files/b205f4c6-8e89-4982-9192-8f59930dd5ee)
+ ![image](https://upload.wikimedia.org/wikipedia/commons/2/28/JPG_Test.jpg)
